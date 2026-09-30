@@ -1,0 +1,1 @@
+# Atividade-maquinas-de-turing-29-09
